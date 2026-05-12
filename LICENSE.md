@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Polymarket algorithm with quantitative Polymarket Algorithm | stop-loss-management + volatility-detection. Featuring stop-loss-management and
 
 
 
